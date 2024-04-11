@@ -1,7 +1,7 @@
 # randcaesar
  # by:zhuzhu114514
 
-![:name](https://count.getloli.com/get/@zhuzhu114514-profile?theme=rule34)
+![:name](https://count.getloli.com/get/@zhuzhu114514_randcaesar-profile?theme=rule34)
 
 - 👋 Hi, I’m @zhuzhu114514
 - 👀 I’m interested in (well , I don'know i can write which one)
