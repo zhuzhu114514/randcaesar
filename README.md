@@ -7,6 +7,6 @@
 - 👀 I’m interested in (well , I don'know i can write which one)
 - 🌱 I’m currently learning c++
 - 📫 Reach me @ 3595064017@qq.com
-- 😄 Pronouns: stupid
+- 😄 Pronouns: =)
 - ⚡ Fun fact: (well , I don'know what to write here)
 
